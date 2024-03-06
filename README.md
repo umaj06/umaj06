@@ -1,6 +1,6 @@
 # 💫 About Me:
 I am graduating.
-<br>I studying in SJCE college.
+<br>I studying in SJCE college of mysure.
 
 
 ## 🌐 Socials:
